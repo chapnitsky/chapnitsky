@@ -1,4 +1,5 @@
-### Hi there 👋
+### 👋 Hi, I’m Doron Chapnitsky
+I’m interested in CODING with Passion
 
 
 ![](https://thumbs.gfycat.com/ActiveCourteousAmericanindianhorse-size_restricted.gif)
